@@ -1,1 +1,1 @@
-test
+Class Assassin (クラス・アサシン, Asashin?), Silent Killer and Heroic Spirit of Assassination (暗殺者の英霊, Ansatsusha no Eirei?), is one of the Four Cavalry Classes among the seven standard Servant classes summoned for the Holy Grail War.
